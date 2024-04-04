@@ -1,0 +1,2 @@
+# What-is-the-top-online-stock-market-course-in-India-for-beginners
+The top online stock market course in India for beginners, according to Skillshiksha, is the "Beginner's Guide to Stock Market Trading." This course covers all the basics of stock market trading, including how to invest, analyze stocks, and create a trading plan. It is designed for those with little to no experience in the stock market.
